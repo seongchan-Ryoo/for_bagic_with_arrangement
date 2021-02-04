@@ -1,0 +1,1 @@
+# for_bagic_with_arrangement
